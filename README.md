@@ -1,3 +1,3 @@
 The Constant
 
-"Sometimes insanity is an appropriate response to reality"
+"There is nothing either good or bad, but thinking makes it so." ~ Hamlet
